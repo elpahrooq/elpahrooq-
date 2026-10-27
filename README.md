@@ -1,3 +1,4 @@
+![Apexsentinal Tech Hub](./file_000000005bac81f4a641699d0668ecbf_1_optimized_950.png)
 APEXSENTINAL TECH HUB
 
 TECHNOLOGY • SECURITY • REPAIR
